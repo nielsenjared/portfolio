@@ -1,1 +1,0 @@
-# nielsenjared.github.io
